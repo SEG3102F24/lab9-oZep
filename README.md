@@ -5,3 +5,10 @@
 
 Joey Issa
 300219818
+
+<img width="798" alt="Screenshot 2024-11-16 at 3 55 05 PM" src="https://github.com/user-attachments/assets/0d19cfb6-29a0-4287-9e78-a804ce0beb87">
+
+<img width="772" alt="Screenshot 2024-11-16 at 3 55 57 PM" src="https://github.com/user-attachments/assets/3e7bebe6-10f3-47f4-a559-74a943dd6184">
+
+<img width="785" alt="Screenshot 2024-11-16 at 3 55 32 PM" src="https://github.com/user-attachments/assets/55208140-b6c0-4be2-95da-ef8ff8a68467">
+
